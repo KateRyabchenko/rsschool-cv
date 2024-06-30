@@ -1,3 +1,3 @@
-# Erfterina Ryabchenko
+# Ekaterina Ryabchenko
 
 ## Contacts
